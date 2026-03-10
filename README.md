@@ -5,4 +5,4 @@
     src="https://www.canva.com/design/DAHDeBdqbVc/VwbHjJIBdhNuU_s-pbz9yA/view?embed" allowfullscreen="allowfullscreen" allow="fullscreen">
   </iframe>
 </div>
-<a href="https:&#x2F;&#x2F;www.canva.com&#x2F;design&#x2F;DAHDeBdqbVc&#x2F;VwbHjJIBdhNuU_s-pbz9yA&#x2F;view?utm_content=DAHDeBdqbVc&amp;utm_campaign=designshare&amp;utm_medium=embeds&amp;utm_source=link" target="_blank" rel="noopener">The following was gathered not with nor for anyones pleasure or intention to attack individual known as Luca for no reason, but rather as forced in defense after continuous attempts to basically destroy the Project image and through this the Project</a> autorstwa Piotr Nurzyński
+<a href="https:&#x2F;&#x2F;www.canva.com&#x2F;design&#x2F;DAHDeBdqbVc&#x2F;VwbHjJIBdhNuU_s-pbz9yA&#x2F;view?utm_content=DAHDeBdqbVc&amp;utm_campaign=designshare&amp;utm_medium=embeds&amp;utm_source=link" target="_blank" rel="noopener">The following was gathered not with nor for anyones pleasure or intention to attack individual known as Luca for no reason, but rather as forced in defense after continuous attempts to basically destroy the Project image and through this the Project</a> by yours truly
